@@ -20,7 +20,7 @@
 
 ### ⚔️ 〢 Features
 
-Note: '💎' features are for premium user only, take care about it and contact '977626341342060675' (yes, its a username) on [Discord](https://discord.com/users/977626341342060675) if you to buy it (30$ lifetime)
+Note: '💎' features are for premium user only, take care about it and contact '977626341342060675' (yes, its a username) on [Discord](https://discord.com/users/977626341342060675) if you want to buy it (30$ lifetime)
 
 > 🚀 AimBot (head only)
 >
